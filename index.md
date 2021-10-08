@@ -2,14 +2,14 @@
 
 ### My house is big. You're welcomed to play there.
 
-### Binbin sucks!
+### This Binbin sucks!
 
-### Come on in. I have something good in the room.
+### Come on in. I have something good in the room. It can help you deng dua lang!
 
-###
+### Something good? Are they new games?
 
-### headline
+### Just come in. You will know it soon....
 
-### content
+### ...
 
-### bottom
+### To be continued...
